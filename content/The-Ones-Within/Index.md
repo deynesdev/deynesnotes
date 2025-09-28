@@ -10,4 +10,5 @@ longform:
   sceneTemplate: templates/chapter.md
   ignoredFiles:
     - Index.md
+    - manuscript
 ---

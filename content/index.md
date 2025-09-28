@@ -2,6 +2,6 @@
 title: deynesnotes
 ---
 
-This is my github webpage
+This is my GitHub webpage
 
-Check out my ongoing novel [The Ones Within](./content/The Ones Within/)
+Check out my ongoing novel [The Ones Within](/The-Ones-Within/)
