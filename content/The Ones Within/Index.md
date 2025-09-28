@@ -8,5 +8,5 @@ longform:
     - Chapter 0
     - Chapter 1
   sceneTemplate: templates/chapter.md
-  ignoredFiles: []
+  ignoredFiles: [Index.md]
 ---
