@@ -1,6 +1,7 @@
 ---
-title: Welcome to Quartz
+title: deynesnotes
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This is my github webpage
+
+Check out my ongoing novel [The Ones Within](./content/The Ones Within/)
