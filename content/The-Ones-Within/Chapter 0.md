@@ -5,7 +5,7 @@ tags:
 ---
 The phone buzzed against my ear.
 
-"You remember Leyley's birthday's tomorrow, right?" Jacob said.
+"You remember Ashley's birthday is tomorrow, right?" Jacob said.
 
 I sat up. "You're telling me this *now*?"
 

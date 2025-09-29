@@ -7,6 +7,7 @@ longform:
   scenes:
     - Chapter 0
     - Chapter 1
+    - Iris
   sceneTemplate: templates/chapter.md
   ignoredFiles:
     - Index.md
