@@ -1,6 +1,6 @@
 ---
 title: Chapter 1
-draft: true
+draft: false
 tags:
 ---
 The alarm jolted me awake at 7:00. I rubbed my dry, sleepy eyes and swung my legs out of bed, the chill of the floor making me wince. Louis was already in the bathroom.
