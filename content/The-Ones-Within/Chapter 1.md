@@ -85,11 +85,92 @@ And just as the teacher opened his mouth—
 
 I sat back down and smiled at the girl. She smiled back, blushed again, and turned her head away.
 
----
+The rest of the class went by pretty fast. I was trying to focus on what the teacher was saying, but Ashley never left my mind. 
 
-**[Insert Mike’s thoughts here — what he wants to give, reflections on Ashley, their relationship, her personality]**
+I've had a crush on her since I remember myself. There were girls in my life who were genuinely interested in me, but I didn't care. I only loved Ashley. 
 
-[After class, Jacob and I go eat pizza together. While waiting for Jacob to come out of the bathroom, the girl tries to talk to me. She introduces herself as Iris. We get to know each other a little; I thank her for the help, she says it’s nothing, and starts asking a question, but Jacob comes out and cuts us off. I tell her we need to go; she blushes, smiles, waves, and runs off. We think, "What a weird one, huh?" Then we talk about Ashley.]
+But can you even call it love? I didn't actually know her very much. We were in the same kindergarten, then - the same school. We spent some time together, but she always was the "popular" one, and I never actually got into her circle of close friends. But still, every second I've spent with her felt magnificent, and I remember each and every one of these moments. The time when I bought her an ice cream and she smiled to me and hugged me, and the day when it was very rainy and I gave her my umbrella. That day I came home all wet, and I then needed to buy new books for school, because mine got wet in the rain too. But it **was** worth it for me. Because I saw her smile.
+
+And a week ago, when I was looking through my mail and saw an invitation to her birthday party I couldn't believe my eyes. I was staring at the envelope for what felt like ages. I was ecstatic.
+
+The sound of people talking stopped my train of thought. I looked up and saw that half of the students have already left the classroom.
+
+"We should get going man", said Jacob.
+
+"Yeah"
+
+I packed my belongings and left the room after Jacob. Right before we left the room he looked at me and said:
+
+"You know, this one girl was staring at you all the time"
+
+"Huh? Which one?"
+
+"That one"
+
+He pointed at the girl I noticed earlier.
+
+"She might just be into you! Go grab her number or something, man". Jacob gave me a playful punch on the shoulder.
+
+"You remember about Ashley, right?". I smirked at him and walked out of the classroom.
+
+"Bro, she doesn't even talk to you? And this one is definitely interested!", said Jacob, gesturing wildly.
+
+I ignored his words and continued moving to the stairs that led to the exit of the faculty.
+
+"Mark, can you wait here for a second? I need to hit the bathroom"
+
+"Sure thing", I answered.
+
+Jacob walked towards the restrooms, almost opened one on the left and then looked on the sign.
+
+"Shit!"
+
+I smiled.
+
+I started walking around to pass the time. Many thoughts about Ashley and her birthday present were crossing my mind. I still didn't know what to buy for her. 
+
+"Maybe I shouldn't *buy* her something, but instead *make* her something?", I  thought.
+
+I then heard an uncertain but beautiful female voice right behind me.
+
+"H-hi Mark!"
+
+I turned around and saw that girl, who was looking at me before.
+
+[add her looks here based on Iris.md. Mark looks at her and sees much more than before, he should notice small things, like green strands and stuff]
+
+"I'm Iris. Nice to meet you". She smiled timidly, tilting her head to the side as she reached out her hand.
+
+"Oh, nice to meet you too". I shook her hand. "Thanks for your help earlier. You really saved me there"
+
+"I-it's nothing, really...". She blushed and started twirling her hair with her left hand. 
+
+"S-so, I wanted to ask y-"
+
+The bathroom door opens and Jacob comes out, cutting Iris off.
+
+"Yo man, I'm ready, let's go"
+
+"Sorry Iris, we have very little time and we need to go grab something to eat. Let's talk some other time, shall we?"
+
+"S-sure...", the girl answers, with embarrassment, guilt and sadness mixed on her face.
+
+Mark gives Iris a high five and smiles.
+
+"See ya!"
+
+The guys walk off, and Iris waves her hand at them.
+
+The girl looks down with her hands together and quietly says:
+
+"Bye, Mark..."
+
+[I think that's a good place to finish the chapter. maybe it's a little too short, but I want people to see it already]
+
+
+
+**[Insert Mark’s thoughts somewhere — what he wants to give, reflections on Ashley, their relationship, her personality]**
+
 
 [We come back; it’s exercises. The girl isn’t in my group. I notice her aura or something, just thoughts.]
 
