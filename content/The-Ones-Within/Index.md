@@ -7,7 +7,10 @@ longform:
   scenes:
     - Chapter 0
     - Chapter 1
+    - Chapter 2
     - Iris
+    - Gemini Analysis & Tips
+    - what next?
   sceneTemplate: templates/chapter.md
   ignoredFiles:
     - Index.md

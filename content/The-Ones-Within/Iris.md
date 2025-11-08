@@ -42,7 +42,6 @@ To make Iris interesting, let her differences show through _behavior_, not just 
 - She avoids being the center of attention. That’s why people don’t really know her → but when she finally steps in, her importance surprises.
     
 - She’s oddly unshaken by weirdness (later, when she reveals the VR truth, she won’t sound hysterical, just calm and certain).
-    
 
 ---
 

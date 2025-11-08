@@ -137,6 +137,7 @@ I then heard an uncertain but beautiful female voice right behind me.
 
 I turned around and saw that girl, who was looking at me before.
 
+I noticed some things that I didn't see before when I saw her in the classroom. Tips of her hair were green, just like her nails and eyes. She also had golden earrings shaped like leaves.
 [add her looks here based on Iris.md. Mark looks at her and sees much more than before, he should notice small things, like green strands and stuff]
 
 "I'm Iris. Nice to meet you". She smiled timidly, tilting her head to the side as she reached out her hand.
@@ -151,29 +152,16 @@ The bathroom door opens and Jacob comes out, cutting Iris off.
 
 "Yo man, I'm ready, let's go"
 
-"Sorry Iris, we have very little time and we need to go grab something to eat. Let's talk some other time, shall we?"
+"Yeah, just give me a second here". I look back at Iris. "So, what did you want to ask?"
 
-"S-sure...", the girl answers, with embarrassment, guilt and sadness mixed on her face.
+"Oh, it's not urgent. I think you have more important things to do now", she answered, tilted her body to the side and looked at Jacob who looked like he **really** wants to go.
 
-Mark gives Iris a high five and smiles.
+"Okay then!"
+
+I gave Iris a high five and smiled.
 
 "See ya!"
 
-The guys walk off, and Iris waves her hand at them.
+We turned around and walked away.
 
-The girl looks down with her hands together and quietly says:
-
-"Bye, Mark..."
-
-[I think that's a good place to finish the chapter. maybe it's a little too short, but I want people to see it already]
-
-
-
-**[Insert Mark’s thoughts somewhere — what he wants to give, reflections on Ashley, their relationship, her personality]**
-
-
-[We come back; it’s exercises. The girl isn’t in my group. I notice her aura or something, just thoughts.]
-
-[Mark should talk to Jacob, then text Roxy when he finally thinks of a present.]
-
-[After that, he spends time making a cool present for Ashley. The reader should think Ashley will be amazed, and he and she will be together. Later, he’ll be crushed at the party. After that, Iris will talk to him, creating a connection, and then Jacob’s alcoholism.]
+Iris looked down and quietly said, "Bye, Mark...".
