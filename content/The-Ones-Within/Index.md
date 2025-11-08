@@ -15,4 +15,5 @@ longform:
   ignoredFiles:
     - Index.md
     - manuscript
+draft: true
 ---

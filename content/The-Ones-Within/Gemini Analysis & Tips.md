@@ -1,6 +1,6 @@
 ---
 title: Gemini Analysis & Tips
-draft: false
+draft: true
 tags:
 ---
 Hello! I've read through chapters 0, 1, 2, and your character notes for Iris. This is a fantastic start. You've got a compelling mystery, a relatable protagonist, and a great central conflict. The "slice of life" college drama is an excellent cover for the deeper, surreal sci-fi plot you're hinting at.
