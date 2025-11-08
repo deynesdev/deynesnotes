@@ -53,7 +53,6 @@ Jacob couldn't contain his laugh.
 
 He then got serious again. "Okay what are the ideas?"
 
-
 We've been brainstorming ideas for a DIY present for around 20 minutes when that same waitress interrupted us.
 
 "Here are your drinks..", she said while placing 2 big glasses of beer in front of Jacob and my cider before me.
@@ -72,13 +71,15 @@ We then smelled something very tasty and both turned our heads to the side.
 
 "Huh? We always get the pineapple one here, man", Jacob stated and grabbed the biggest slice of pizza with his right hand.
 
-"Whatever, I like pineapple pizza too"
+I stared at him. *Did we?* I could have sworn... I opened my mouth, then closed it.
+
+"Whatever, I like pineapple pizza too", I muttered, pulling a slice.
 
 We ate the pizza and drank our drinks while chatting about university stuff. Walking out I felt how full my stomach was.
 
 "That was a great meal. Hey, I was thinking about going to the "DIY" store to grab some props for Ashley's present. Wanna go with me?"
 
-"Nahh man, I drank a liter of beer, rem'ber?", Jacob said, and I noticed that he was barely able to walk straight. "Gotta call an Uber and get home, 'kay?"
+"Ah. crap, I can't", Jacob said, pulling out his phone. His screen lit up with a text. "Coach just called a last-minute training session, I gotta run, man"
 
 "Sure, brother. Take care"
 

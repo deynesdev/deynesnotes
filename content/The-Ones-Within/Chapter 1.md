@@ -11,9 +11,11 @@ The alarm jolted me awake at 7:00. I rubbed my dry, sleepy eyes and swung my leg
 
 “Maybe he… you know?” I nodded toward the toilet, toothbrush in my mouth. A tiny tuft of fur floated in the water. Louis didn’t notice.
 
+I froze. My toothbrush stopped moving. **A tiny tuft of fur.** No, that's... It has to be.
+
 He looked at me like I was a wild animal. "What are you even saying! He would never do something like that!"
 
-I silently brushed my teeth and left the bathroom.
+ I tore my eyes away and spat in the sink. Silently continued brushing my teeth, eyes fixed on a crack in the mirror.
 
 I went back to my room. It was a little stuffy in there, so I reached for the window handle and opened it slightly. A cool wind brushed my hand and arm; I shivered. My phone lay on my desk, screen down, charging. I picked it up and glanced at the time. "7:11 huh. Guess I've got a little time before my classes start."
 
@@ -29,7 +31,7 @@ I needed to check with Jacob about Ashley. It’d be awful if we bought her the 
 
 By the time I finished the last of the groats and glanced at the clock, it was **7:23**. Crap. If I didn’t leave in ten minutes, I’d be cutting it close.
 
-I quickly threw on the first T-shirt I could find, pulled on my pants, put on my shoes and jacket, and rushed out of my room.
+I grabbed the T-Shirt off my desk chair - clean enough - and yanked it on. Hopped on one foot to pull on my pants and almost fell over. I jammed my feet into the shoes, grabbed my jacket and backpack and rushed out the door.
 
 When I entered the huge, old-looking lecture hall, it was already 7:58. I scanned the students sitting and chatting, and walked quickly to the nearest table-arm chair available. I sat down and put my backpack to the left so Jacob could sit next to me. He's always "right on time," so I often do this for him.
 
@@ -73,7 +75,7 @@ I couldn’t focus. Ashley's birthday is tomorrow, and I had no idea what to bri
 
 "What command do you use to list the contents of a directory in Linux?"
 
-"Uhhhh… It’s…" I didn’t know the answer. My heart hammered; my palms were slick.
+"Uhhhh… It’s…" My heart hammered; my palms were slick. Nothing, just static. Think, Mark, think!
 
 I noticed the girl with the notebook shaking her head. _She wrote something on paper._
 
@@ -87,9 +89,7 @@ I sat back down and smiled at the girl. She smiled back, blushed again, and turn
 
 The rest of the class went by pretty fast. I was trying to focus on what the teacher was saying, but Ashley never left my mind. 
 
-I've had a crush on her since I remember myself. There were girls in my life who were genuinely interested in me, but I didn't care. I only loved Ashley. 
-
-But can you even call it love? I didn't actually know her very much. We were in the same kindergarten, then - the same school. We spent some time together, but she always was the "popular" one, and I never actually got into her circle of close friends. But still, every second I've spent with her felt magnificent, and I remember each and every one of these moments. The time when I bought her an ice cream and she smiled to me and hugged me, and the day when it was very rainy and I gave her my umbrella. That day I came home all wet, and I then needed to buy new books for school, because mine got wet in the rain too. But it **was** worth it for me. Because I saw her smile.
+I thought about the time I gave her my umbrella. It was a total downpour, I came home soaked and with my books ruined. But I didn't care. It was worth it for me, just seeing her smile made me happy enough.
 
 And a week ago, when I was looking through my mail and saw an invitation to her birthday party I couldn't believe my eyes. I was staring at the envelope for what felt like ages. I was ecstatic.
 
@@ -137,8 +137,7 @@ I then heard an uncertain but beautiful female voice right behind me.
 
 I turned around and saw that girl, who was looking at me before.
 
-I noticed some things that I didn't see before when I saw her in the classroom. Tips of her hair were green, just like her nails and eyes. She also had golden earrings shaped like leaves.
-[add her looks here based on Iris.md. Mark looks at her and sees much more than before, he should notice small things, like green strands and stuff]
+I noticed some things that I didn't see before when I saw her in the classroom. I'd seen her, but I hadn't *looked* at her. Her hair was short and messy, but as she tilted her head, the light caught the tips. They were green. Not a bright, punk green, but a dark, forest one, almost black. It matched her nails and eyes quite well. She wore a simple brown cardigan and a pair of big, clunky boots, and from her ears hung small, golden earrings shaped like leaves
 
 "I'm Iris. Nice to meet you". She smiled timidly, tilting her head to the side as she reached out her hand.
 

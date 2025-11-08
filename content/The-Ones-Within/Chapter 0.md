@@ -9,7 +9,7 @@ The phone buzzed against my ear.
 
 I sat up. "You're telling me this *now*?"
 
-He laughed. "Relax, man. It's in two days."
+He laughed. "Relax, man. I'm kidding. It's in two days."
 
 "Two days? That's still no time!"
 
@@ -35,4 +35,4 @@ I dragged myself to the bathroom. The cabinet door hung open, and my pills were 
 
 The hamster must've knocked the bottle down. Some of the pills were chipped, one half-dissolved in a puddle of sink water, I sighed, picked up one that looked intact, and dry-swallowed it. Bitter, chalky. Always the same.
 
-Back in bed, I closed my eyes an hoped sleep would hand me a miracle gift idea.
+Back in bed, I closed my eyes hoping that sleep would hand me a miracle gift idea.
