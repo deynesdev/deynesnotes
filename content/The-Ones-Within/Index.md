@@ -5,9 +5,10 @@ longform:
   workflow: Default Workflow
   sceneFolder: /
   scenes:
-    - Chapter 0
+    - Prologue
     - Chapter 1
     - Chapter 2
+    - Chapter 3
     - Iris
     - Gemini Analysis & Tips
     - what next?
